@@ -42,7 +42,7 @@ Bom, atualmente estou trabalhando para uma empresa de calçados onde atuo na ger
 
  Estou à procura de uma oportunidade de emprego onde o meu foco não é a remuneração em si, e sim o conhecimento, aprendizagem, experiencia na área, que possam complementar com os conhecimentos que já tenho e assim poder me aprofundar cada vez mais.
  
- Não possou experiência na área, apenas o que já venho estudando em meu curso, estando assim disposto a propostas, mesmo que estas não sejam remuneradas, até que eu possa provar meu valor a empresa.
+ Não possou experiência registrada na carteira na área, apenas o que já venho estudando em meus cursos, estando assim disposto a propostas, mesmo que estas não sejam remuneradas, até que eu possa provar meu valor a empresa.
  Caso se interesse, entre em contato comigo. Obrigado
 
 
