@@ -4,9 +4,9 @@
 
 **Nome:** Igor Henrique Bratti Domingues  
 **Telefone:** (44) 99946-8154  
-**Cidade:** MAringá - PR  
-**Email:** igor__bratti@hotmail.com  
-**LinkedIn:** https://www.linkedin.com/in/igor-henrique-bratti-domingues-908967184/  
+**Cidade:** Maringá - PR  
+**Email:** igorbrattidev@gmail.com  
+**LinkedIn:** https://www.linkedin.com/in/igor-bratti/  
 **Github:** https://github.com/IgorBratti  
 
 ### Especialidades
@@ -35,15 +35,12 @@
 *  **Estácio** - Análise e Desenvolvimento de sistemas (cursando);
 
 ### Idiomas
+* **Português** - Nativo
 * **Inglês** - Intermediário Avançado;
 
 ### Pessoal
 
-Bom, atualmente estou trabalhando para uma empresa de decoração onde atuo na gerência do e-Commerce. Além disso, estou realizando uma graduação em análise e desenvolvimento de sistemas e realizando um curso - há 1 ano - voltada a área de Front e Back end com foco em Javascript pela plataforma da Alura, no momento com conhecimentos básicos/intermediários, porém, a cada dia aprimorando mais meu conhecimento.
+ Atualmente, desempenho minhas funções na Vitru Educação, atuando como Analista de CRM para duas renomadas instituições de ensino sob seu guarda-chuva: a UniCesumar e a UniAsselvi. Meu papel centraliza-se na área de comunicação, buscando aprimorar estratégias e promover uma interação eficaz entre a empresa e seu público-alvo.
 
- Estou à procura de uma oportunidade de emprego onde o meu foco não é a remuneração em si, e sim o conhecimento, aprendizagem, experiencia na área, que possam complementar com os conhecimentos que já tenho e assim poder me aprofundar cada vez mais.
- 
- Não possou experiência registrada na carteira na área, apenas o que já venho estudando em meus cursos, estando assim disposto a propostas, mesmo que estas não sejam remuneradas, até que eu possa provar meu valor a empresa.
- Caso se interesse, entre em contato comigo. Obrigado
 
 
